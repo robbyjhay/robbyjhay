@@ -1,4 +1,4 @@
-👋 Hi, I’m @JeffersonOkikioluwa
+👋 Hi, I’m Jefferson Okikioluwa Robert
 
 👀 I’m interested in web development, stylish outfits, and Python programming
 
